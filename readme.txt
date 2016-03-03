@@ -1,3 +1,5 @@
+俺那个【自动同步翻墙工具】的 BT sync 密钥：BTLZ4A4UD3PEWKPLLWEOKH3W7OQJKFPLG
+
 “无界”是老牌的翻墙工具，由法轮功背景的美国公司研发。
 
 官方网站是：无界浏览
